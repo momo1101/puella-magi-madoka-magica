@@ -1,0 +1,1 @@
+[CASO&SumiSora][Puella\_Magi\_Madoka\_Magica](Puella_Magi_Madoka_Magica.md)[GB](GB.md)[全12话]
